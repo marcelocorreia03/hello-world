@@ -4,13 +4,17 @@
   -I am currently in my junior year of High School
   -I was Born in Cape Verde. its a bunch of islands off the west coast of Aftrica
 ![Image of Cape Verde](https://i.dailymail.co.uk/1s/2019/02/23/14/10181314-6737167-image-a-1_1550931026392.jpg)
+
   -My Full Name is Marcelo Fortes Correia
   -My hobbies include, riding my bike, going to the movies, and working out.
 
 # Favorite Websites/Music
 Sites.
+
 [YouTube](http://youtube.com)
+
 [Netflix](https://netflix.com)
+
 Music. In my Opinion theres a genre of music for everything in life.
 I like RnB, Rap, and some Pop. But i also enjoy some Lofi Hip-Hop which I listen to while doing Homework.
 ![Lil Tecca](https://marriedceleb.com/uploads/biography/2019/8/30/Lil_Tecca1-1567145338556.jpg)
